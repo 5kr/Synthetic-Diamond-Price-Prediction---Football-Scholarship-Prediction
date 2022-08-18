@@ -1,0 +1,1 @@
+# Synthetic-Diamond-Price_prediction---Football-Scholarship-Prediction
